@@ -1,0 +1,1 @@
+# UAS_Artifiicial-Intelegence_Reza-Dwi-Putra_20220801472
